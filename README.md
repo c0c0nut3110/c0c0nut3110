@@ -1,5 +1,8 @@
 <h1 align="center">︵︵︵ ๑ ♡ ๑ ︵︵︵</h2>
 <h1 align="center">biggest wip the world has seen! xD</h2>
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=flohwalzer&label=݁˖Ი𐑼⋆&color=fedf79&style=plastic" alt="Profile Views"/>
+
 <img width="1200" height="1255" alt="image" src="https://github.com/user-attachments/assets/791b2666-e811-44ce-a186-7fad2e694d3c" />
 
 <h1 align="center">______๑♡⁠๑______</h2>
