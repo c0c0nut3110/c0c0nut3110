@@ -1,4 +1,4 @@
-<h1 align="center">︵︵︵ ๑ ♡ ๑ ︵︵︵</h2>
+<h1 align="center">︵︵ ᕱ⑅ᕱ ︵︵</h2>
 <h1 align="center">biggest wip the world has seen! xD</h2>
 
 <p align="center">
@@ -6,7 +6,7 @@
 
 <img width="1200" height="1255" alt="image" src="https://github.com/user-attachments/assets/791b2666-e811-44ce-a186-7fad2e694d3c" />
 
-<h1 align="center">______๑♡⁠๑______</h2>
+<h1 align="center">______Ი︵𐑼______</h2>
 <!--
 **c0c0nut3110/c0c0nut3110** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
