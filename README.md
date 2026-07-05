@@ -5,3 +5,6 @@
 <h1 align="center">˙ . ꒷ 🫟  . 𖦹˙—</h2>
 <p align="center">
   <a href="https://github.com/yattastatic">heya sis!</a> &nbsp;‎ʚɞ&nbsp; 
+<h1 align="center"></h2>
+<h1 align="center">˙ . ꒷ 🖌️  . 𖦹˙—</h2>
+- Heya, Im Brusha / Allie.. Im also known as cuddles!
