@@ -5,6 +5,8 @@
 <h1 align="center">˙ . ꒷ 🫟  . 𖦹˙—</h2>
 <p align="center">
   <a href="https://github.com/yattastatic">heya sis!</a> &nbsp;‎ʚɞ&nbsp; 
-<h1 align="center"></h2>
-<h1 align="center">˙ . ꒷ 🖌️  . 𖦹˙—</h2>
-- Heya, Im Brusha / Allie.. Im also known as cuddles!
+
+  <img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/956e327a-a1cb-481b-84e7-9d9c24aa5e40" />
+<p align="center">
+  <h1 align="center">˙ . ꒷ 🖌️  . 𖦹˙—</h2>
+- ata, strawpage, pn page, rentry all wip.
