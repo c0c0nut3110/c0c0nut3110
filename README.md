@@ -10,6 +10,3 @@
 
 <p align="center">
   <h1 align="center">˙ . ꒷ 🫟  . 𖦹˙—</h2>
-- ata, strawpage, pn page, rentry all wip.
-
-  thank you sister for helping me out! <3
