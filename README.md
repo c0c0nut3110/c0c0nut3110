@@ -4,9 +4,11 @@
 <img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/bdd74062-fdf0-4211-99c4-f0a527695927" />
 <h1 align="center">˙ . ꒷ 🫟  . 𖦹˙—</h2>
 <p align="center">
-  <a href="https://github.com/yattastatic">heya sis!</a> &nbsp;‎ʚɞ&nbsp; 
 
-  <img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/956e327a-a1cb-481b-84e7-9d9c24aa5e40" />
+<img width="2048" height="1536" alt="image" src="https://github.com/user-attachments/assets/e443cfd2-19f5-4f99-a3a7-b424ec5cdb07" />
+<a href="https://github.com/yattastatic">heya big sis!</a> &nbsp;‎ʚɞ&nbsp; 
+
 <p align="center">
   <h1 align="center">˙ . ꒷ 🖌️  . 𖦹˙—</h2>
 - ata, strawpage, pn page, rentry all wip.
+thank you sister for helping me out! <3
